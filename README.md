@@ -1,1 +1,0 @@
-# portfoliopalta.github.io
